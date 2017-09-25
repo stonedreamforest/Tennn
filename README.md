@@ -11,4 +11,4 @@
 
 
 
-![screenshot1](https://github.com/stonedreamforest/Tennn/blob/master/2017-09-25_22-09-16.gif)
+![screenshot1](https:/22)
